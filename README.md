@@ -1,1 +1,1 @@
-# 2 Semestre da Faculdade
+# 2º Semestre da Faculdade
